@@ -1,5 +1,5 @@
 # Daily learning
 
-## Morning routinges
+## Morning Planning
 
 ## Review
